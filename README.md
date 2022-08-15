@@ -12,4 +12,19 @@ que significaba que eso suceda.
 Es EXTRAÑO hoy ver solamente un monte interminable, a veces inundado,otras como en este caso montes húmedos y luego secos, 
 una tierra quebrada.
 
+LA RELACION DEL HOMBRE CON LA NATURALEZA
+Hay una historia que nos habla de esta relación que comienza con el temor a la ella, hasta pasar al dominio de la misma.
+y cuando hablo de lo extraño, estoy hablando de una epoca en que la porción de naturaleza conocida o familiar era proveedora 
+de alimentos, y pasó a ser solo naturaleza, por otra intervención sobre la misma por el hombre. Una intervención mayor, 
+el corte de un río para construir una represa hidroeléctrica, para generar energía eléctrica.
+
+es extraño ver la transformacion de los lugares que fueron comunes, comunidad alguna vez, allí donde nació y creció mucha
+gente. 
+
+que es lo extraño entonces para mi?
+
+si el termino lugar es ese espacio donde las personas pueden construir memoria, es un espacio vivido cargado de simbolismos, relaciones sociales, valoraciones y significados emocionales que hacen al arraigo y a la identidad que desarrollan los seres humanos, volver a este espacio, convertido en un monte inundado, o una playa poblada de ramas y raíces desprendidas, estoy frente a la mayor extrañeza.
+
+
+
 
